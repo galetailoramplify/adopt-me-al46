@@ -1,4 +1,4 @@
-#  
+#  adopt me Scripts rare offers the most advanced adopt me Script, with no cooldown and auto-heal. Perfect for dominating any match.
 
 
 
